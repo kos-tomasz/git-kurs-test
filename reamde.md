@@ -1,0 +1,1 @@
+Zaczynamy kursik gita.
