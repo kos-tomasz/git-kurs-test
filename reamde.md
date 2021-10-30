@@ -1,1 +1,3 @@
 Zaczynamy kursik gita.
+
+Lecimy!
